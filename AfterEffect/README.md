@@ -1,4 +1,4 @@
 # After Effect
 
 
-![](http://imgur.com/a/cfIYV)
+![](http://i.imgur.com/Cqr6tDn.gif)
